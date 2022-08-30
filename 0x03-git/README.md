@@ -1,1 +1,1 @@
-We are working
+Is God not wonderful?
